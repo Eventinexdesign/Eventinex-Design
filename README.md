@@ -1,1 +1,1 @@
-# Eventinex-Design
+# Eventinex Design
